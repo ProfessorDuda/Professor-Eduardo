@@ -8,7 +8,7 @@ Meu nome é Eduardo H Aranda
 
 ### Você pode entrar em contato 📧
 eduardoaranda@prof.educacao.sp.gov.br
-@eduardoaranda
+@eduardoharanda
 
 
 
